@@ -1,3 +1,3 @@
-can any one help me to get more easy github ?
+can any one help me to get understand easy github ?
 
 
